@@ -1,0 +1,2 @@
+Khớp gối là một trong những khớp quan trọng của cơ thể, nguyên nhân đau khớp gối có thể là do các yếu tố chấn thương, viêm hay thoái hóa khớp gối, do các bệnh lý về khớp gối như tràn dịch khớp gối, gout, nhiễm trùng.
+https://chuabenhkhoptambinh.wordpress.com/2018/06/13/khop-goi-la-mot-trong-nhung-khop-quan-trong-cua-co-the-nguyen-nhan-dau-khop-goi-co-the-la-do-cac-yeu-to-chan-thuong-viem-hay-thoai-hoa-khop-goi-do-cac-benh-ly-ve-khop-goi-nhu-tran-dich-khop-goi-go-3/
